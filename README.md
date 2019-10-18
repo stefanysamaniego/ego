@@ -4,7 +4,7 @@ considero el ego como la manera en que una persona piensa en si misma a tal punt
  
  ## El  Ego para Mi 
 
- Todos conocemos a una persona que piensa que tiene siempre la razón, que no escucha y que defiende siempre su opinión en cualquier circunstancia. Esa actitud es una de las características de las personas con ego desmedido.
+ Todos conocemos a una persona que piensa que tiene siempre la razón, que no escucha y que defiende siempre su opinión en cualquier circunstancia, ya que piensa que los demas esta equvicados y que nunca van a tener la razon aunque si la tengan pero para ellos no sera asi, las personas que tinen esta actitud nunca lo aceptan sino que estan costantemente negandolo porque segun su pensar no tiene esa actitud. Esa actitud es una de las características de las personas con ego desmedido.
  Te puedes encontrar con un jefe, una pareja o un amigo con los que es complicado razonar y que piensan que su opinión es la única verdad que importa.
  El Ego significa "Yo"
 
